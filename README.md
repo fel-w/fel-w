@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fel-w but you can call me felix :).
+- 👋 Hi, I’m @fel-w but you can call me felix :)
 - 👀 I’m very much interested in ui and ux design.
 - 🌱 I’m currently learning as much as I can.
 - 💞️ I’m looking to collaborate on ... Well anything!

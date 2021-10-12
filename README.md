@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fel-w you can call me felix :)
 - 👀 I’m very much interested in ui and ux design.
-- 🌱 I’m currently learning as much as I can.
+- 🌱 I’m currently learning pretty much everything.
 - 💞️ I’m looking to collaborate on ... Well anything!
 - 📫 How to reach me -> wangottafelix@gmail.com
 
